@@ -1,7 +1,3 @@
-- 👋 Hi, I’m @marc-o-bellow
-- 👶 I`m rookie here
-- 👀 I’m interested in minecraft mods, and python development
-- 🌱 I’m currently learning Java & Python
-- 💞️ I’m looking to collaborate with my brain
-- 📫 You can reach me in discord (joodyrnack) and email (markovka.zh@gmail.com)
-- ⚡ Fun fact: idk
+Безошибочный геймплей ✅ Позитивное мышление 
+✅ Только победы ✅Уважение соперника 
+✅ Идеальное вождение ✅
